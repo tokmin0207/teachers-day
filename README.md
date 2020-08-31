@@ -1,2 +1,4 @@
 # comptuing-work
-how does this work ok
+lol idk but hii
+once upon a time there was a girl named tokmin
+i guess this is how you do it
